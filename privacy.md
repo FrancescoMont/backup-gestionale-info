@@ -1,3 +1,5 @@
+---
+---
 # Informativa sulla privacy — Backup Gestionale
 
 Ultimo aggiornamento: 23 ottobre 2026.
